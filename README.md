@@ -1,8 +1,25 @@
 # oiii ✮⋆˙
 
-pequenos projetos & grandes surtos
+<img width="1600" height="588" alt="Image" src="https://github.com/user-attachments/assets/a76750f9-b633-4a98-a370-0e00b1aab111" />
+.
+.
+.
+.
 
-🎀 html e css  
-💿 provavelmente ouvindo Lady Gaga
-🩷 criando coisas aleatórias  
-✨ sobrevivendo na base do commit e do surto
+𝚙𝚎𝚚𝚞𝚎𝚗𝚘𝚜 𝚙𝚛𝚘𝚓𝚎𝚝𝚘𝚜 𝚎 𝚐𝚛𝚊𝚗𝚍𝚎𝚜 𝚜𝚞𝚛𝚝𝚘𝚜
+.
+.
+.
+.
+
+# 🎀 𝘩𝘵𝘮𝘭 𝘦 𝘤𝘴𝘴
+# 💿 𝘰𝘣𝘴𝘦𝘴𝘴𝘦𝘥 𝘸𝘪𝘵𝘩 𝘭𝘢𝘥𝘺 𝘨𝘢𝘨𝘢
+# 🩷 𝘤𝘳𝘪𝘢𝘯𝘥𝘰 𝘤𝘰𝘪𝘴𝘢𝘴 𝘢𝘭𝘦𝘢𝘵𝘰́𝘳𝘪𝘢𝘴
+# ✨ 𝘴𝘰𝘣𝘳𝘦𝘷𝘪𝘷𝘦𝘯𝘥𝘰 𝘯𝘢 𝘣𝘢𝘴𝘦 𝘥𝘰 𝘤𝘰𝘮𝘮𝘪𝘵 𝘦 𝘥𝘰 𝘴𝘶𝘳𝘵𝘰
+
+⟡ ⟡ ⟡
+✦ ✧ ✦
+⟡ loading...
+
+
+
