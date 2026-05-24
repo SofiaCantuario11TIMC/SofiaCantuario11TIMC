@@ -3,6 +3,6 @@
 pequenos projetos & grandes surtos
 
 🎀 html e css  
-💿 powered by lady gaga
+💿 provavelmente ouvindo Lady Gaga
 🩷 criando coisas aleatórias  
 ✨ sobrevivendo na base do commit e do surto
